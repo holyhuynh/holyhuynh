@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @holyhuynh
 - 👀 I’m interested in book, food, chilltime, sky, cat
 - 🌱 I’m currently learning mmo
-- 💞️ I’m looking to collaborate on singel
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me gmail magicanblue@gmail.com 
-- 😄 Pronouns: nomal
+- 😄 Pronouns: i
 - ⚡ Fun fact: nope
 
 <!---
